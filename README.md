@@ -5,6 +5,6 @@
 - 📫 How to reach me: 
   - Email: raghavendrav1505@gmail.com
   - [LinkedIn](https://www.linkedin.com/in/raghavendrav1505)
-  - [GitHub](https://github.com/yourusername)
+  - [GitHub](https://github.com/rags1528)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I represented my university in inter-departmental chess competition and achieved success at the state level as a chess player in 12th standard.
