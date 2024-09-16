@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to Dashboard creation, database management, and web development.
 - 📫 How to reach me: 
   - Email: raghavendrav1505@gmail.com
-  - [LinkedIn](https://www.linkedin.com/in/yourusername)
+  - [LinkedIn](https://www.linkedin.com/in/raghavendrav1505)
   - [GitHub](https://github.com/yourusername)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I represented my university in inter-departmental chess competition and achieved success at the state level as a chess player in 12th standard.
